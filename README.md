@@ -19,5 +19,5 @@
 * I don't really have time for hobbies. Between  working full-time, spending time with my four kids, and school. There's no time for hobbies. I use to enjoy working on an array of projects from motorcycles to woodworking. Now I get enjoyment from getting up early on Saturday and Sunday and cooking a huge brunch. 
 
 ## Websites
-	- [Pinterest] (https://www.pinterest.com) - Pinterest is the perfect website to get the juices flowing on thing to cook. Not only does Pinterest give nice visuals it also has pretty decent recipes. Most of the I just use the recipes as a base and through my own flair into it. 
-	- [Allrecipes] (https://www.allrecipes.com) - Allrecipes is my go to for full poor recipes if you never cook anything like what you want to cook. If its someone's first time cooking something. This website would definitely give you the in's and out's of the recipe. To allow the best chance of success. 
+*  [Pinterest] (https://www.pinterest.com) - Pinterest is the perfect website to get the juices flowing on thing to cook. Not only does Pinterest give nice visuals it also has pretty decent recipes. Most of the I just use the recipes as a base and through my own flair into it. 
+* [Allrecipes] (https://www.allrecipes.com) - Allrecipes is my go to for full poor recipes if you never cook anything like what you want to cook. If its someone's first time cooking something. This website would definitely give you the in's and out's of the recipe. To allow the best chance of success. 
